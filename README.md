@@ -1,5 +1,2 @@
-dont fucking paste the menu jimbo
- only paste modules 
+Joke paste 
 
-# media
-![image](https://i.imgur.com/7rKZHUL.png)
